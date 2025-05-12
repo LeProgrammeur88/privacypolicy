@@ -1,4 +1,4 @@
-Privacy Policy for Quizzito
+
 
 Privacy Policy
 Last updated: December 23, 2024
